@@ -8,7 +8,7 @@ http://www.linkedin.com/in/notmyprofilelookelsewhere
 
 # Summary
 
-I personally do not think I am qualified for this job. But since I am required to write something here. Here you go. Think of this text as a placeholder of some sorts. If you made it this far, then I guess it worked. :D
+I personally do not think I am qualified for this job. But since I am required to write something here. Here you go. Think of this text as a placeholder of some sorts. If you made it this far, then I guess it worked. :smiley:
 
 # Education and Work Experience
 
